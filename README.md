@@ -8,7 +8,7 @@
 🚀 I enjoy building tools that are both functional and impactful
 🛠️ Open to collaborations in AI and backend development
 🌱 Lifelong learner with a focus on growth and innovation
-✨ Let’s connect and build something amazing: [Your LinkedIn, Email, or Website] ✨
+✨ Let’s connect and build something amazing✨
 
 
 
